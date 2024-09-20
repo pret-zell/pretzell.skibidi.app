@@ -1,2 +1,2 @@
 # pretzell.skibidi.app
-nfjkernerkfjcndxljdnjvkv befejwnkfcjn
+unblocked gmaes
